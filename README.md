@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sladetsk
-♥ fuck off ♥
+
 - ⚡
 
 <!---
